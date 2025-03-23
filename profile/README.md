@@ -22,6 +22,6 @@ Depois de te **inscreveres no website** do ENEI:
 
 ## Dúvidas? 💡
 
-Consulta o Regulamento.
+Consulta o [Regulamento](https://drive.google.com/file/d/1gymS0_I5MW2UoOByYbuWU2-BWuIobH3C/view?usp=sharing).
 
 Que vença o melhor! 🏅🚀
